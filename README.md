@@ -1,0 +1,1 @@
+# aimlbootcamp_miniProject
